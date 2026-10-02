@@ -1,0 +1,1 @@
+# kuis_124240045_mobile_teori_C
